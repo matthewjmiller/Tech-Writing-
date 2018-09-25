@@ -24,14 +24,14 @@ In an ever changing and highly competitive agricultural market, it is not just a
 
 ## Frequently asked questions: 
 
-Q. Does castration and ear notching constitute cruelty towards the pig?
+**Q.** Does castration and ear notching constitute cruelty towards the pig?
 
-A. Much the same way that humans don’t remember getting their umbilical cord tied off or getting their first round of childhood vaccinations, so too do hogs forget the minor and short lived pain of castration, ear notching, etc.
+**A.** Much the same way that humans don’t remember getting their umbilical cord tied off or getting their first round of childhood vaccinations, so too do hogs forget the minor and short lived pain of castration, ear notching, etc.
 
-Q. Are there more efficient ways of identifying hogs (like ear tags) rather than using a possibly outdated system like ear notching?
+**Q.** Are there more efficient ways of identifying hogs (like ear tags) rather than using a possibly outdated system like ear notching?
 
-A. Hogs, due to their inquisitive and destructive nature, have a tendency to destroy less permanent forms of identification, like ear tags. This makes these forms of ID more suited to short term needs instead of methods of ID for the life of the animal.
+**A.** Hogs, due to their inquisitive and destructive nature, have a tendency to destroy less permanent forms of identification, like ear tags. This makes these forms of ID more suited to short term needs instead of methods of ID for the life of the animal.
 
-Q. Does introducing vaccines into the lives of hogs make them dependent on modern pharmaceuticals to maintain their growth and production?
+**Q.** Does introducing vaccines into the lives of hogs make them dependent on modern pharmaceuticals to maintain their growth and production?
 
-A. No, hogs would continue to stay on the same trajectory of growth if they did not have a number of these vaccines, but the vaccines do increase the number of hogs that make it to market by decreasing death loss rates.
+**A.** No, hogs would continue to stay on the same trajectory of growth if they did not have a number of these vaccines, but the vaccines do increase the number of hogs that make it to market by decreasing death loss rates.
