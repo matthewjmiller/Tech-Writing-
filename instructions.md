@@ -1,3 +1,13 @@
+---
+Title: Processing Pigs  
+
+Author: Chania Hoffman 
+
+Date: September 25, 2018
+
+Type: How-To Paper 
+---
+
 # Processing Pigs 
 
 Processing pigs at an early age is a critical step in hog production. Within the hog industry when producers discuss processing pigs, it typically refers to the act of administering iron, castrating, and identification of piglets within their first week of life. Processing pigs is a fairly easy procedure and every hog producer should be familiar with. This article will serve as a general guide for the most common practices associated with early pig processing. 
