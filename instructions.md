@@ -47,3 +47,4 @@ In an ever changing and highly competitive agricultural market, it is not just a
 **A.** No, hogs would continue to stay on the same trajectory of growth if they did not have a number of these vaccines, but the vaccines do increase the number of hogs that make it to market by decreasing death loss rates.
 
 
+
