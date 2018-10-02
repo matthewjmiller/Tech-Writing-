@@ -1,0 +1,5 @@
+I was fairly comfortable with assignment one, and thought it was straightforward. What made it easy was being able to use a topic that I am comfortable with. This allowed me to filter through the information that was necessary to provide, without having to do a lot of research and then having to sort out extraneous information. I was able to keep the assignment short and concise while still meeting the length requirement.  
+
+I was suprised by how helpful the peer review was. I thought the guided outline was useful, because typically I do not recieve much useful feedback from other students. Being able to recieve another's opinion about my instructions really helped me to understand what parts of my writing were unclear. Sometimes, this is dificult to assess on my own writing, especially when I am so familiar with the topic. 
+
+The most challenging aspect is trying to figure out how to format a markdown document. This is unfamiliar territory, escpecially since I do not get along with technology very well. It is different from what I am accustomed to and uses a different mode of thought to use than using Word or something similar. 
